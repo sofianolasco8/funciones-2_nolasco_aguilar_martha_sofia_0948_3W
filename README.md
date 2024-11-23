@@ -20,6 +20,43 @@ EJERCICIO 5
 ![image](https://github.com/user-attachments/assets/fca55f96-e0b3-48bd-8ec4-c9c8b0428afa)
 ![image](https://github.com/user-attachments/assets/2a9d783e-5df4-49da-b4f6-c2ea3492730f)
 
+EJERCICIO 6
+![image](https://github.com/user-attachments/assets/dc5bb863-b80b-4033-8d4b-8e82dbfa2918)
+![image](https://github.com/user-attachments/assets/34e1c85f-d333-420a-b96d-ad17f722958b)
+
+EJERCICIO 7
+![image](https://github.com/user-attachments/assets/0ecdc069-3ee9-4cd3-b92f-d38680cdb953)
+
+![image](https://github.com/user-attachments/assets/3f14266c-7996-440b-9c58-237a16a0ad2e)
+
+EJERCICIO 8 
+
+![image](https://github.com/user-attachments/assets/79ddea7d-ceb7-4bb2-a8ff-6cef482e90a3)
+
+![image](https://github.com/user-attachments/assets/c4acd028-e872-4165-8139-49de7cdae3f7)
+
+EJERCICIO 9
+
+![image](https://github.com/user-attachments/assets/ad0829b8-e0ed-482e-a775-f2e458d98113)
+
+![image](https://github.com/user-attachments/assets/b6f74848-385e-4a8f-94ff-3e18c59a463f)
+
+EJERCICIO 10
+
+![image](https://github.com/user-attachments/assets/a39570e0-9123-4d38-83c0-e601b31958d2)
+
+![image](https://github.com/user-attachments/assets/ed9fe6fe-bffa-4861-8f28-f8a227ed6825)
+
+
+
+
+
+
+
+
+
+
+
 
 
 
